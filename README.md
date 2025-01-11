@@ -1,4 +1,4 @@
-# Today-s-Free-5000-Fire-Daimonds-Generator-January-2025-No-Human-Verification
+# Today-s-Free-5000-Free-Fire-Daimonds-Generator-January-2025-No-Human-Verification
 
 Hey Guys, Free Fire Diamonds Generator 2025 Another mobile online is called the Free Fire Diamonds Generator. This mobile lets you earn real money using the in-game currency.
 
